@@ -1,1 +1,1 @@
-# cool-things-in-tech
+# Cool Things in Tech
